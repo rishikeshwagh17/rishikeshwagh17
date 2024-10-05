@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any devlopment work
 - 📫 How to reach me rishikesh.wagh1708@gmail.com
 
-currently pursuing PGDAC From IACSD pune it great to learn all the technologies and i had wonderful experience while learning web devlopment technologies
+currently working as a associate software engineer at a Product based company.
 
 
 <!---
